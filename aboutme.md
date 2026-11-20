@@ -3,3 +3,4 @@ im the cec (flex intended)
 
 i wont resign bro
 jantar mantar is slammed
+you guys cant do shit
